@@ -1,0 +1,2 @@
+# Pst
+Kecerdasan
